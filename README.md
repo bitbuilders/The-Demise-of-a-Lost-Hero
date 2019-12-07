@@ -1,0 +1,2 @@
+# The Demise of a Lost Hero
+ Your journey begins in an old building where you find an oddly placed book. The book, labeled, “The Hero”, was no ordinary one. As you touch the book, reality as you knew it was now a distant memory, and the night sky quickly gained a red tint accompanied by a chill breeze. You hear the blood curdling scream of a monster, which therein begins your quest to get the hell out of whatever nightmare you got yourself into, or perhaps, what someone else got you into.
